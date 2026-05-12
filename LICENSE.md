@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Wolfram Mathematica for PC | Wolfram Mathematica for Windows plugin with Wolfram Mathematica for PC | Wolfram Mathematica for Windows exclusive Plugin: scripting
 
 
 
